@@ -1,0 +1,1 @@
+# tuga_web_vii_blog
